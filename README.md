@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Dmitry-iyk
+- 👋 Hi, I’m @DimaPure
 - 👀 I am interested in working in the IT field, I do coding, layout and much more!
 - 🌱 I am currently receive a higher education in the specialty Information Systems and Technologies.
 - 📫 How to contact me - mail (chistohin1@mail.ru)
